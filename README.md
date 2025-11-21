@@ -1,0 +1,1 @@
+# 5-second-guess-app-privacy-policy
